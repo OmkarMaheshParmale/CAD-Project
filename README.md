@@ -13,3 +13,4 @@ CAD Projet 2
 ![Annotation 2022-06-15 230254](https://user-images.githubusercontent.com/66547099/173890038-7bce9af8-f858-4a3e-b836-2d25f7060820.png)
 
 
+![Annotation 2022-06-15 230345](https://user-images.githubusercontent.com/66547099/173890215-bbbba0c9-1178-4c99-86b1-94246411894f.png)
